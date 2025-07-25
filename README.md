@@ -328,7 +328,3 @@ If you encounter any issues or have questions:
 **Happy Cooking! 🍳✨**
 
 Made with ❤️ by [Your Name]
-#   M E R N - P R O J E C T 1  
- #   M E R N - P R O J E C T 1  
- #   M E R N - P R O J E C T 1  
- 
